@@ -1,1 +1,2 @@
-# Thank-you-for-a-great-Thanksgiving
+Thank you for a great Thanksgiving
+ - Happy Thanksgiving from our family to yours! Every year, we sit down and celebrate the things in our life that are worth being thankful for. Whether you’re celebrating in the States or elsewhere around the globe, we hope you had a very Happy and safe Thanksgiving. Thank you for all of your support over the past year. We appreciate all of our clients’ passion for their small business. - https://lowpriceshirt.com/the-holiday-shop/thanksgiving/
